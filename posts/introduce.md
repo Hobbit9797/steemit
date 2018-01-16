@@ -17,3 +17,5 @@ That's right, those little prohibitively expensive boxes of aluminium that make 
 My plan is to post anything from build reports including demos of pedals I've built and will be building(expect one of these posts a month) as well as resources that are going to be handy if you decide to build a pedal on your own like beginner guides, shopping recommendations, circuit layouts and more!
 
 If that sounds like something you could enjoy, give me a follow and join me on this journey. &#128513;
+
+You will be able to find me in diy, guitar and electronics for the most part!
